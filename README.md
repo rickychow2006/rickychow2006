@@ -6,4 +6,4 @@
 - 💬 Ask me about **anything!**
 - 📫 How to reach me: **rchow3illinois@gmail.com**
 - 😄 Pronouns: **He/Him/His**
-- ⚡ Fun fact: **I was a former CPA and Auditor, I have a dual degree in Finance and Accountancy from the University of Illinois at Urbana-Champaign!**
+- ⚡ Fun fact: **I was a former CPA and Auditor, I have a dual degree in Finance and Accountancy from the University of Illinois at Urbana-Champaign! 🔶🔷**
